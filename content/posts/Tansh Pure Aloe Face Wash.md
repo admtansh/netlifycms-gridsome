@@ -13,6 +13,6 @@ Aside from being a staple in your mother's medicine cabinet for sunburned skin, 
 1. It soothes sunburn. 
 2. It helps fade dark spots. 
 3. It moisturizes skin. 
-6. It clears up acne. 
+4. It clears up acne. 
 
 Tansh Pure Aloe Face Wash 6-pronged action fights the damaging effects of pollution on skin. Mild scrubbing beads deep clean to remove excess oil,dirt and sweat without overdrying. Gently cleans,cools and soothes tired skin keeping it fresh and glowing all day
